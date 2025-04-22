@@ -1,1 +1,1 @@
-# Leck...eier
+# Leck eier
